@@ -7,11 +7,11 @@ https://m.chzzk.naver.com/home/sports/fifa-worldcup-2026
 https://schedule.kbs.co.kr/m/index.html?sname=schedule&stype=table&type=globalList
 kbs2
 불법
-외국
+외국 crack streams
 https://crack-streams.cx/World-Cup-stream
-한국
+한국 hulk
 https://hulk24.com
-한국
+한국 bbong tv
 https://xn--9w3bntr48b.com/
 2026 우회
 Chrome 확장 vpn
